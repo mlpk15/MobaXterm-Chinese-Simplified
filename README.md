@@ -92,7 +92,7 @@
   > ###### 专业应用
   >
   > MobaXterm Professional 专为安全性和稳定性而设计
-
+  MobaXterm license Key 生成 https://inused.github.io/pages/file/tool/MobaXtermKeygen.html
 
 
 ### 三、项目看板
